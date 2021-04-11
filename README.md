@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @SamuraiTux
+- 👋 Hi, I’m @SamuraiTux - Kenneth, OZ2KSO 🤓
 - 🙏 Yoga & Meditation Teacher 🧘‍♂️ 
-- 📡 Electronics Engineer 
+- 📡 Electronics Engineer 🛰
